@@ -15,6 +15,6 @@ My name is Maya Borrero. I have spent the last 10 years of my life serving peopl
 
 🐑 Ask me about anything cozy related. I am a cozy girl who loves reading, puzzling, gaming, baking, cooking, and home-making. 
 
-💌 Call me, beep me, if you want to reach [me](mayaborrero@outlook.com)
+💌 Call me, beep me, if you want to reach me -> mayaborrero@outlook.com
 
 👼🏼 Silly little facts about me: I recently moved to the South from Philadelphia, PA. I have celiac disease. I am Colombian and fluent in Spanish. I have owned and played every version of the Sims since their intial release. I am adopting a boston terrier in the coming month!
