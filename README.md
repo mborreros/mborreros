@@ -2,7 +2,7 @@
 ### Boop 🐕
 
 
-My name is Maya Borrero. I have spent the last 10 years of my life serving people and becoming a queen of customer service (and I am only 24, so that's a little wild). This past year I decided to being a new journey in computer programming to challenge myself and get away from the monotony of the retail day-to-day. I gradtuated Flatiron School and am now embarking on my job search! These are my projects and my coding work. I pride myself on always learning, getting my hands dirty, and asking meaningful questions. Don't hesitate to reach out!
+My name is Maya Borrero. I have spent the last 10 years of my life serving people and becoming a queen of customer service (and I am only 24, so that's a little wild). This past year I decided to being a new journey in computer programming to challenge myself and get away from the monotony of the retail day-to-day. I graduated Flatiron School and am now embarking on my job search! These are my projects and my coding work. I pride myself on always learning, getting my hands dirty, and asking meaningful questions. Don't hesitate to reach out!
 
 
 🤠 I'm currently working on my personal brand (who knew Twitter was professional now, y'know?)
