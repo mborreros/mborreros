@@ -6,9 +6,15 @@ My name is Maya Borrero. I have spent the last 10 years of my life serving peopl
 
 
 🤠 I'm currently working on my personal brand (who knew Twitter was professional now, y'know?)
+
 🧑🏽‍🌾 I'm currently learning how to build mods for games like Stardew Valley. I would love to learn about how to mod the Sims in the future!
+
 🧚🏼‍ I'm looking to collaborate. Period. I would love to work with anyone on their current project. I am really interested in backend code (Ruby and Ruby on Rails). I love a good challenge and would like to work on your team. 
+
 💞 I'm looking for help with networking. I would love to chat and connect with you!
+
 🐑 Ask me about anything cozy related. I am a cozy girl who loves reading, puzzling, gaming, baking, cooking, and home-making. 
-💌 Call me, beep me, if you want to reach me -> mayaborrero@outlook.com
+
+💌 Call me, beep me, if you want to reach [me](mayaborrero@outlook.com)
+
 👼🏼 Silly little facts about me: I recently moved to the South from Philadelphia, PA. I have celiac disease. I am Colombian and fluent in Spanish. I have owned and played every version of the Sims since their intial release. I am adopting a boston terrier in the coming month!
