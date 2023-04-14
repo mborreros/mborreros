@@ -1,4 +1,4 @@
-![Maya Borrero Profile Header](https://user-images.githubusercontent.com/88791527/214623297-b54e4a76-978d-4f22-b025-94e72c4bd999.png)
+<!-- ![Maya Borrero Profile Header](https://user-images.githubusercontent.com/88791527/214623297-b54e4a76-978d-4f22-b025-94e72c4bd999.png)
 ### Boop 🐕
 
 
@@ -17,4 +17,4 @@ My name is Maya Borrero. I have spent the last 10 years of my life serving peopl
 
 💌 Call me, beep me, if you want to reach me -> mayaborrero@outlook.com
 
-👼🏼 Silly little facts about me: I recently moved to the South from Philadelphia, PA. I have celiac disease. I am Colombian and fluent in Spanish. I have owned and played every version of the Sims since their intial release. I am adopting a boston terrier in the coming month!
+👼🏼 Silly little facts about me: I recently moved to the South from Philadelphia, PA. I have celiac disease. I am Colombian and fluent in Spanish. I have owned and played every version of the Sims since their intial release. I am adopting a boston terrier in the coming month! -->
